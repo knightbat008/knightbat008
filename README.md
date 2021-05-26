@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @knightbat008
-- 👀 I’m owner of Knightbar Co.
+- 👀 I’m owner of Knightbat Co.
 - 🌱 I’m currently learning how to fly with my bat suit.
 - 💞️ I’m looking to collaborate with Stark Industries.
 
